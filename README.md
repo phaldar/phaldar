@@ -1,4 +1,4 @@
-## hello frinds join Airdrop Earn Crypto Token👋
+##join Airdrop Earn Crypto Token👋
 
 <!--
 **phaldar/phaldar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
